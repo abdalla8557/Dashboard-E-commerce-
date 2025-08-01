@@ -21,5 +21,4 @@ A reduction in demand caused by market fluctuations or a decrease in promotional
 
 
 
-Ask ChatGPT
 
